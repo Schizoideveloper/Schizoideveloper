@@ -1,3 +1,4 @@
+![Discord Durumum](https://lanyard.cnrad.dev/api/789470004662763520)
 ![MasterHead](https://images.unsplash.com/photo-1542831371-29b0f74f9713?fm=jpg&q=60&w=3000&auto=format&fit=crop&ixlib=rb-4.1.0&ixid=M3wxMjA3fDB8MHxzZWFyY2h8Mnx8cHJvZ3JhbW1pbmclMjBsYW5ndWFnZXxlbnwwfHwwfHx8MA%3D%3D)
 
 <h1 align="center">Hi 👋, I'm Schizoidev</h1>
